@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bigsmartguy
+- I come from Zhengzhou University in China
+- I I majored in computational chemistry
+- Welcome to study and exchange together！
